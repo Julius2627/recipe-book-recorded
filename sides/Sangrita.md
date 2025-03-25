@@ -13,3 +13,4 @@
 ## Instructions
 
 - Mix everything together
+- Taste and add ingridients which you like
